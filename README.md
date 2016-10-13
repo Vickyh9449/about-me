@@ -12,4 +12,3 @@ Schedule:
 6. Spanish
 7. US History
 8. English
-9. 
