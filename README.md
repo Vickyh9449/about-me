@@ -16,7 +16,6 @@ To learn more about my SEP creations, [here is a link to my SEP portfolio from m
 
 * Seeing my family and close friends happy
 <br>
-<br>
 ---
 ####  **_Schedule_**:
 
